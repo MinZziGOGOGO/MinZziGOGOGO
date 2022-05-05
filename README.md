@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MinZziGOGOGO
+- 👀 I’m interested in long things
+- 🌱 I’m currently learning JAVAVVA
+- 📫 How to reach me https://www.youtube.com/watch?v=iik25wqIuFo
